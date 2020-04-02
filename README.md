@@ -1,2 +1,0 @@
-# magi
-creating awareness
